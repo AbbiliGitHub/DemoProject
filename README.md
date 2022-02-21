@@ -1,2 +1,2 @@
 Hello Abbili
-How are yoou Doin'?
+How are you Doin'?
